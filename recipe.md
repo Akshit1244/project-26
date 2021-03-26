@@ -1,0 +1,5 @@
+Filter gram flour and keep in a utensil. Add little water at a time and stir to make a thick mixture, there should not be any solid particles in the mix. Add turmeric powder to it and mix.Pour 2 small glasses of water in the utensil you will use to make Dhokla and place it on the gas to heat. Also keep a stand in the utensil on which you can keep a plate filled with gram flour mixture. Grease the plate with oil.
+
+Put lemon juice, salt, green chilly paste, ginger paste in the gram flour mixture. Now put eno salt in it and stir the mixture with a spoon. As soon as air bubbles are appear in the mixture pour it in the plate and keep the plate on the stand. The water in the utensil has heated and you can steam coming out from it, Cover the utensil and cook Dhokla for almost 20 minutes on a high flame.
+
+Dhokla is cooked(to test, poke cooked Dhokla with a knife, the mixture should not stick to the knife). Besan Dhokla is ready, turn off the gas and take out the plate with Dhokla from the utensil. Allow Dhokla to cool then separate it from the edges using a knife. Overturn the plate with Dhokla on another plate and take it out. Cut into desired shapes with a knife.
